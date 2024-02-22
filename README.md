@@ -1,2 +1,3 @@
-# Gabriel Omane-Yeboah
-## Hello There ⚜️
+## Hello there!!
+# Christian | Creative | Developer ⚜️
+## Gabriel Omane-Yeboah 
